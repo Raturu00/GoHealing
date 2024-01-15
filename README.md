@@ -1,4 +1,4 @@
-# GASCUY TEAM
+# GASCUY TEAM.
 <br>
 
 # GoHealing
